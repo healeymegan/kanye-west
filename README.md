@@ -1,2 +1,2 @@
 # kanye-west
-*__yeezus__*
+*_yeezus_*
